@@ -1,1 +1,1 @@
-Atividades propostas pelo professor Ricardo Duarte Taveira
+Local das atividades e das avliações.
